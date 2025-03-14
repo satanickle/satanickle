@@ -10,6 +10,7 @@
 <p align="center"> I have ADD (ADHD without the H)
 <p align="center"> Btw I'm not an Aventurine irl I just highly relate to him and I like him a lot
 <p align="center"> I'M AROACE!!! I make romantic comments as JOKES!
+  <p align="center"> If I don't like you, I will hide you! I block freely ^_^
 <p align="center">
 <img width="100" height="100" src="https://media1.tenor.com/m/MCoBNXTd4ocAAAAd/aventurine-aventurine-hsr.gif">
 <p align="center">
