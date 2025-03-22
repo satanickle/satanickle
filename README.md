@@ -17,9 +17,9 @@
 <img src="https://64.media.tumblr.com/6a4318d86036de1f20134fd7a6562217/aae12c2586d2299d-32/s400x600/222088b24472e440140b4e79bf2dba8000b0f658.pnj">
 <p align="center"> INT
 <p align="center"> Games
-<p align="center"> Honkai star rail, identity v, cookie run kingdom, genshin
+<p align="center"> Honkai star rail, identity v, cookie run kingdom, genshin, 811
 <p align="center">Ships
-<p align="center">Avenday, tonton, shadowvanilla
+<p align="center">Avenday, tonton, shadowvanilla, vittoryker
 <p align="center">
 <img width="100" height="100" src="https://media1.tenor.com/m/x7vEIvxbvE0AAAAd/sunday-aventurine.gif">
 <p align="center">
