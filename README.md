@@ -1,4 +1,5 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31f6zfocqd5fpeh5ukyptputcib4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile) 
+![](https://komarev.com/ghpvc/?username=satanickle&color=green)
 <p align="center">
   <img src="https://64.media.tumblr.com/9863d7ca543a895eea48297a5dcdef48/36afa839df5dd5b9-cd/s640x960/c0e01cf9ff91f3d1d548df669d46355174126fe7.gifv"> 
 <p align="center">
