@@ -35,7 +35,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/cdbdce4384252afa596f50a27313c008/0e76e1328a203702-19/s500x750/fe5d2840dc82679ecfa10cf5685c082e98a21c84.gifv">
 <p align="center"> Socials
-<p align="center"> Discord - satanickle
+<p align="center"> Discord - kakavah
 <p align="center"> Tiktok - basil.frfr
 <p align="center">
 <img src="https://64.media.tumblr.com/cdbdce4384252afa596f50a27313c008/0e76e1328a203702-19/s500x750/fe5d2840dc82679ecfa10cf5685c082e98a21c84.gifv">
