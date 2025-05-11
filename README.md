@@ -26,7 +26,7 @@
 <p align="center">
 <img width="500" height="100" src="https://64.media.tumblr.com/38b090074c6e9a8f73616fef4bd9f1a9/215cf8b0e7f43249-43/s400x600/7e04b936440f5115e76412b7ae592094b31dfcee.gifv">
 <p align="center"> DNI
-<p align="center"> Basic dni criteria, proshippers, maps
+<p align="center"> Basic dni criteria, proshippers, maps, dandy's world, psycho cuties
 <p align="center"> Ships
 <p align="center"> Nortpheus, jokermike (these are serious triggers for me)
 <p align="center">
