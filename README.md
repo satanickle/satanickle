@@ -34,8 +34,8 @@
 <p align="center">
 <img width="500" height="100" src="https://64.media.tumblr.com/38b090074c6e9a8f73616fef4bd9f1a9/215cf8b0e7f43249-43/s400x600/7e04b936440f5115e76412b7ae592094b31dfcee.gifv">
 <p align="center"> Socials
-<p align="center"> Discord - kakavah
-<p align="center"> Tiktok - basil.frfr
+<p align="center"> Discord - sp4wnable
+<p align="center"> Tiktok - sp4wnable
 <p align="center">
 <img width="500" height="100" src="https://64.media.tumblr.com/38b090074c6e9a8f73616fef4bd9f1a9/215cf8b0e7f43249-43/s400x600/7e04b936440f5115e76412b7ae592094b31dfcee.gifv">
 <p align="center">
