@@ -7,9 +7,9 @@
 <p align="center">
 <img width="500" height="100" src="https://64.media.tumblr.com/38b090074c6e9a8f73616fef4bd9f1a9/215cf8b0e7f43249-43/s400x600/7e04b936440f5115e76412b7ae592094b31dfcee.gifv">
 <p align="center"> HELLO!!! I'm Spawn, or Basil
-<p align="center"> I use he/him pronouns!
+<p align="center"> I use they/them pronouns!
 <p align="center"> I have ADD (ADHD without the H)
-<p align="center"> I LOVE MY BOYFRIEND DAKOTAAA !!!! <3
+<p align="center"> I LOVE MY GIRLFRIEND TARIE !!!! <3
 <p align="center"> Dniuid if I'm with my friends, applies only to strangers, unless you're from the same fandom as me
   <p align="center"> If I don't like you, I will hide you! I block freely ^_^
 <p align="center">
