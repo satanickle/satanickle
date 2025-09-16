@@ -9,7 +9,7 @@
 <p align="center"> HELLO!!! I'm Spawn, or Basil
 <p align="center"> I use they/them pronouns!
 <p align="center"> I have ADD (ADHD without the H)
-<p align="center"> I LOVE MY GIRLFRIEND TARIE BEAR!!!! <3
+<p align="center"> Single, not looking (taking a break)
 <p align="center"> Dniuid if I'm with my friends, applies only to strangers, unless you're from the same fandom as me
   <p align="center"> If I don't like you, I will hide you! I block freely ^_^
 <p align="center">
